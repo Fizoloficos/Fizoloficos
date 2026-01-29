@@ -38,11 +38,8 @@ Descrição de uma ferramenta útil que você deseja compartilhar.
 
 🔗 Encontre Nossos Jogos:
 
-•
-[Link para a página da FZLC INK no Itch.io/Steam/Loja]
 
-•
-[Link para o site oficial da FZLC INK]
+
 
 
 
